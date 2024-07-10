@@ -1,0 +1,1 @@
+Screnshot da aplicação
